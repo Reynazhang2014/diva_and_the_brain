@@ -1,5 +1,5 @@
 Team
 Brian Halbur
-Mina Abad
+Mina Abad (RIP)
 Reyna Zhang
 Shetu 
